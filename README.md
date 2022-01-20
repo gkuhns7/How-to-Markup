@@ -1,2 +1,2 @@
 # How-to-Markup
-How to Paint your Nails
+Select How to Paint your Nails (.md) file
