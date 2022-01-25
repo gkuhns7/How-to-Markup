@@ -1,7 +1,7 @@
 # How to Paint your Nails 
 ### _by: Gabby Kuhns_
 
-Even though painting your nails is a fairly simple task, these instructions will help elevate the process and improve results. The more you practice, the easier painting nails becomes and the more fun you can have experimenting with different designs and styles.
+Painting your nails is a fairly simple task, but these instructions will elevate the process and improve results. The more you practice, the easier painting nails becomes and the more you can experiment with different designs and styles.
 
 ## Warning: 
 ##### _Some of the following products are flammable and should be kept out of reach of children._
@@ -23,21 +23,21 @@ Even though painting your nails is a fairly simple task, these instructions will
 
 2. Collect necessary materials.
      - place all items on a flat surface 
-     - preferably somewhere easy to sit
+     - choose somewhere comfortable to sit
      
 3. Clip each nail so that they are all around the same length. 
 
-4. After clipping, file nails into a shape of your choosing. 
+4. File nails into a shape of your choosing. 
     -  almond, square and coffin are all examples of nail shapes
     
 5. Open your polish and apply a thin coat to every nail making sure to avoid your cuticles. Let these dry for approximately 10 mins. 
     - use long brush strokes for an even coverage
 
 6. Apply a second coat of nail polish once the first is dry to the touch.
-7. Next, apply nail polish remover to the end of a q-tip or cotton swab and clean up anywhere that the polish missed your nail.  
+7. Soak the end of a q-tip or cotton swab in nail polish remover and clean anywhere that the polish missed your nail.  
 8. Add a top coat to seal in your polish after allowing the second coat to dry.
-9. Finally, add cuticle oil to your nail beds. 
-    - this will give your nails a glowy, hydrated look. 
+9. Massage cuticle oil into your nail beds. 
+    - give your nails a glowy, hydrated look. 
 
 10. Let dry for no less than an hour or overnight for best results. 
 
