@@ -6,7 +6,7 @@ Painting your nails is a fairly simple task, but these instructions will elevate
 ## Warning: 
 ##### _Some of the following products are flammable and should be kept out of reach of children._
 
-> ![nails1](nails1.jpg=140x200)
+> ![nails1](nails1.jpg = 140 x 200)
 
 ## Required Materials
 
